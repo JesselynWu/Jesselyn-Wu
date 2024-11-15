@@ -11,8 +11,6 @@ Haloo
 ## Edukasi:
 
 #### 1. Universitas Prima Indonesia
-     2. Methodist-5
-     3. Methodist-3
      
 ## Pengalaman kerja:
 #### 1. PT.Indako | sebagai admin claim.
