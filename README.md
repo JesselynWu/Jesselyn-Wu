@@ -5,8 +5,7 @@ Haloo
 - 🎨🖌️ Hobi melukis
 - 🎤 Memiliki bakat bernyanyi
 - 🐈 Pecinta kucing, meoww!
-- 💬 
-- 📫 How to reach me: vincentwidyan@gmail.com
+- 📫 How to reach me: jesselynwu12@gmail.com
 
 ## Edukasi:
 
